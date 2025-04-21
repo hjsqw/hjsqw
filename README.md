@@ -8,6 +8,8 @@
 
 海角社区官方群：https://t.me/hjsqw1
 
+海角社区官方频道：https://t.me/haijiaosq2025
+
 海角社区官方Twitter： https://x.com/haijiaosq2025
 
 获取最新地址方法1 发任意内容到邮箱： haijiao2025@pm.me
