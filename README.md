@@ -1,39 +1,15 @@
-海角社区 https://dycg1.com 全网最大原创乱伦平台，更新快 免翻墙 千万原创资源免费观看
+海角社区最新网址(免翻墙) https://hjsq.fun
 
-海角社区 最新地址发布页 🍉🍉🍉 (本信息更新时间 2025-4-11)
+海角社区永久地址(需翻墙) https://hjsqw.com
 
-海角社区官网最新地址： https://bed.xlfmedh.cc/ （禁止直接点击访问）请复制链接粘贴到浏览器
+海角社区商务合作电报联系 https://t.me/shangwulr
 
-海角社区永久地址（需科学⬆️上网） https://dycgweb.com （禁止直接点击访问）请复制链接粘贴到浏览器
+海角社区投稿/问题反馈 https://t.me/gdjd168
 
-备用地址1： https://basket.xlfmedh.cc/ （禁止直接点击访问）请复制链接粘贴到浏览器
+海角社区官方群：https://t.me/hjsqw1
 
-备用地址2： https://anymore.xlfmedh.cc/ （禁止直接点击访问）请复制链接粘贴到浏览器
+海角社区官方Twitter： https://x.com/haijiaosq2025
 
-商务合作： https://t.me/shangwulr
+获取最新地址方法1 发任意内容到邮箱： haijiao2025@pm.me
 
-失联后如何找到回家的路：
-
-方法1:邮箱发送任意内容邮件可获取最新地址
-
-邮箱1： hjsqw@proton.me 
-
-方法3:关注海角社区官方推特 https://x.com/dycgw_com
-
-方法4:加入海角社区官方频道、用户群组
-
-海角社区官方官方用户群（Telegram）https://t.me/hjsqw1
-
-常见问题：
-
-网址打不开？？？
-
-1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
-
-2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https://
-
-3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
-
-4.下载科学上网工具：蚂蚁加速器 https://bc3.dzfvmre.com/c-5016/a-brEXR （禁止直接点击访问）请复制链接粘贴到浏览器
-
-请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力😘～
+获取最新地址方法2 GITHUB： https://github.com/hjsqw
