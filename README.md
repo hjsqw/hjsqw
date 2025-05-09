@@ -1,4 +1,4 @@
-海角社区最新网址(免翻墙) https://hjsq.fun
+海角社区最新网址(免翻墙) https://hjsq.co
 
 海角社区永久地址(需翻墙) https://hjsqw.com
 
