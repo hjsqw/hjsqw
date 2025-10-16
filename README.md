@@ -6,7 +6,7 @@
 
 海角社区投稿/问题反馈 https://t.me/gdjd168
 
-海角社区官方频道：https://t.me/t.me/haijiao010
+海角社区官方频道：https://t.me/haijiao010
 
 海角社区官方Twitter： https://x.com/haijiaosq2025
 
