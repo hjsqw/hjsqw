@@ -10,6 +10,6 @@
 
 海角社区官方Twitter： https://x.com/haijiaosq2025
 
-获取最新地址方法1 发任意内容到邮箱： haijiao2025@pm.me
+获取最新地址方法1 发任意内容到邮箱： haijiaoshequ670@gmail.com
 
 获取最新地址方法2 GITHUB： https://github.com/hjsqw
