@@ -2,7 +2,7 @@
 
 海角社区永久地址(需翻墙) https://hjsqw.com
 
-海角社区商务合作电报联系 https://t.me/shangwulr
+海角社区商务合作电报联系 https://t.me/TikTokgfsw
 
 海角社区投稿/问题反馈 https://t.me/gdjd168
 
